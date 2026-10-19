@@ -5,8 +5,7 @@ never gonna give you up never gonna let you down, never gonna run around and des
 never gonna give you up never gonna let you down, never gonna run around and desert you
 never gonna give you up never gonna let you down, never gonna run around and desert you
 never gonna give you up never gonna let you down, never gonna run around and desert you
-never gonna give you up never gonna let you down, never gonna run around and desert you
-never gonna give you up never gonna let you down, never gonna run around and desert you
+never gonna give you up never gonna let you down, never gonna run around and k
 never gonna give you up never gonna let you down, never gonna run around and desert you
 never gonna give you up never gonna let you down, never gonna run around and desert you
 never gonna give you up never gonna let you down, never gonnaklkl run around and desert you
